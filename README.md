@@ -11,4 +11,4 @@ Nachhaltigkeit ist im Zeitalter der globalen Erwärmung ein wichtiges Thema. Ach
 ### Qualität von Duftkerzen
 Neben der Nachhaltigkeit ist die Qualität der ätherischen Öle und Parfums besonders wichtig. Die Standards in der Produktion sollten so hoch wie möglich sein, sowohl was die Gewinnung der Substanzen als auch die Verarbeitung betrifft. Je besser und fairer die Quellen sind, aus denen ein Produkt stammt, desto höher ist seine Qualität! Außerdem müssen Produkte gründlich getestet werden, bevor sie in die Massenproduktion gelangen, da sie sonst Schaden anrichten könnten - was letztlich ihren Zweck verfehlen würde. Ein gutes Beispiel ist die Kopplung von Gaschromatographie und Massenspektrometrie (GC-MS). GC-MS ist eine Analysemethode, bei der alle Inhaltsstoffe einzeln betrachtet und auf ihre Reinheit hin überprüft werden. Dieses Verfahren wird einfach als GC/MS oder GC/MSCUP abgekürzt.
  
-[Vegane Kerzen mit hochwertige Aromen ](https://ozoi.de/collections/duftkerzen/kategorie-duftkerzen) sind deshalb umso wichtiger.
+Vegane Kerzen mit hochwertige Aromen sind deshalb umso wichtiger.
